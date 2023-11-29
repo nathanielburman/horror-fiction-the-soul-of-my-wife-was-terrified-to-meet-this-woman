@@ -11,4 +11,7 @@ The democrats rebel flag was waving in the distance and the Civil War Actors wer
 The time shifts back from some time period between 1920-1980 to now.
 
 # ACT 2
-## This woman became the symbol of all women. Ren Faires for life! So anyways, this pale pirate vampire looking ultra hottie walks through a mass of disgusting human filth and I see her floating through with lights and all the special effects. I look at my girl and she sees this being and just freaks. Flips out completely about her feet or somethign and under no way does she want to talk.
+## This woman became the symbol of all women. Ren Faires for life! So anyways, this pale pirate vampire looking ultra hottie walks through a mass of disgusting human filth and I see her floating through with lights and all the special effects. I look at my girl and she sees this being and just freaks. Flips out completely about her feet or somethign and under no way does she want to talk to the beautiful girl.
+
+## Well, I was wanting to talk to her. She was the most beautiful woman there. And as soon as I noticed her I was like, whoah a one, a one one. I found one. You didn't find one, I found it. One.
+## It wasn't like that... obcviously. But I found a one she thought was one and I showed her that, but I was looking at her. It doesn't matter anymore, it was a long time ago. And for me to even continue in my rememberance of her image is relly something. She was like milky fleshy with breasts squishy up top and below, but all tall and powerful like a woman, but perfect at a 10 since she hits anyone's eyes. So I never said anything to her at the Ren Faire, because my woman went into a mode man. Girlfriend! She went into a way about her and I didnt get much closer to the Ren Faire Mistress.
